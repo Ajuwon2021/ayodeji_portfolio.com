@@ -69,6 +69,6 @@ Feel free to reach out to me if you have any questions or if you're interested i
 - Phone: [+234 706 0649 410](tel:+2347060649410)
 - GitHub: [Ajuwon2021](https://github.com/Ajuwon2021)
 - Twitter: [@Ayodeji473291](https://twitter.com/Ayodeji473291)
-- LinkedIn: [Ayodeji Ajuwon](https://www.linkedin.com/in/ayodeji-ajuwon-b1bb402b9/)
+- LinkedIn: [Ayodeji Ajuwon](https://www.linkedin.com/in/ayodeji-ajuwon-279959317/)
 
 ##### Thank you for visiting my portfolio. I look forward to connecting with you!
